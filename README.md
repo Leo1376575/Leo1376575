@@ -1,0 +1,2 @@
+- Interested in coding/software development
+- Also interested in hardware
